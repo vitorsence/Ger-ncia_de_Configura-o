@@ -1,0 +1,1 @@
+# Ger-ncia_de_Configura-o
